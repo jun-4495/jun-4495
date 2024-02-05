@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jun-4495
+- 👀 I’m interested in crypto trading
+- 🌱 I’m currently learning trading strategy
